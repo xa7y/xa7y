@@ -3,7 +3,7 @@
 Call me **Cae** /*say*/  
 or **Xav**/y (my real name!)  
 16 He/Him Vietnamese  
-Typology: LIE SO172 VLFE *& More*  
+Typology: LIE SO127 VLFE *& More*  
 
 **Main interests** YTTD, Yakuza, Hand Jumper, Dexter, Vagabond, Devil May Cry, Berserk, Persona  
 **Links** [letterboxd](https://letterboxd.com/xa7y/) — [last.fm](https://www.last.fm/user/caesv) — [fragrantica](https://www.fragrantica.com/@7avy) 
