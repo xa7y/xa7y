@@ -12,5 +12,5 @@ I have tons of media I'm interested in, but I can't be bothered to list down muc
 I rarely talk about most of my interests, just ask me if you'd like to know anything specific  
   
 C+H and talk to me whenever, I don't bite  
-**W2I** otherwise I might not notice as I am offtab/busy most of the time
+**W2I** otherwise I might not see your message, I am offtab/busy most of the time
 
