@@ -2,7 +2,7 @@
 
 Call me **Cae** /*say*/  
 or **Xav**/y (my real name!)  
-16 He/Him Vietnamese  
+16 He/Him EN/VN  
 Typology: LIE SO127 VLFE *& More*  
 
 **Main interests** YTTD, Yakuza, Hand Jumper, Dexter, Vagabond, DMC, Berserk, Persona  
